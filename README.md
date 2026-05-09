@@ -18,6 +18,6 @@ Here are some ideas to get you started:
 
 <img src="IMG_2851.jpeg" alt="togachako art">
 
-art by @ynnu-64 on tumblr
+art by @ynnu-64 on tumblr!
 
 "The cutest in girl in the world..."
