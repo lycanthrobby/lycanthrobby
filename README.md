@@ -14,10 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-"You think I'm... cute?"
+Noah! He/Him, Pup/Pups, It/Its! Neito Monoma Irl yall, trust...trust!
 
 <center><img src="IMG_2876.jpeg" alt="monoma"><center></center>
-
-"The cutest in girl in the world..."
 
 Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on more strawpage!
