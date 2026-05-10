@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 "You think I'm... cute?"
 
-<img src="IMG_2852.jpeg" alt="togachako art">
+<center><img src="IMG_2852.jpeg" alt="togachako art"><center></center>
 
 "The cutest in girl in the world..."
 
