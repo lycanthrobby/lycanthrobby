@@ -1,4 +1,4 @@
-## I love my doomed yuri !!
+## Discord: @noahzont
 
 <!--
 **lycanthrobby/lycanthrobby** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
