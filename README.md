@@ -18,8 +18,7 @@ Noah! He/Him;
 
 Neito Monoma Irl yall, trust...trust!
 
-Im normally sitting with my friends or by myself in some random lil location... You'll mostly find me with these lovely folks!: Zev, Ed, Seb, Kitty, Kat, Amanda & Diivine
+Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on more strawpage!
 
 <center><img src="IMG_2876.jpeg" alt="monoma"><center></center>
 
-Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on more strawpage!
