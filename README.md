@@ -14,10 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Noah! He/Him;
+Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah, but you can also call me Robby, Crow(ley) or any nickname you'd like, I do not mind :)
 
-
-Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on my strawpage!
 
 <center><img src="IMG_3138.jpeg" alt="trans rights"><center></center>
 
+Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on my strawpage!
