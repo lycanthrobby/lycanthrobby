@@ -16,7 +16,6 @@ Here are some ideas to get you started:
 -->
 Noah! He/Him;
 
-Neito Monoma Irl yall, trust...trust!
 
 Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on my strawpage!
 
