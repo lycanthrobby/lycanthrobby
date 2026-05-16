@@ -19,5 +19,5 @@ Noah! He/Him;
 
 Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on my strawpage!
 
-<center><img src="IMG_2876.jpeg" alt="monoma"><center></center>
+<center><img src="IMG_3138.jpeg" alt="trans rights"><center></center>
 
