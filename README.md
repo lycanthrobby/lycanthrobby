@@ -20,5 +20,7 @@ Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah, but you c
 
 
 <center><img src="IMG_4578.jpeg" alt="stolas"><center></center>
-
 Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on my strawpage!
+
+
+                                     ─────── ⋆⋅☆⋅⋆ ──────
