@@ -14,8 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Noah's reworking his gh for once, everyone cheer
-
 Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah / Robby, either is for, or! By the character I am on pony / names of my fictkins. 
 
 18 years old! I ask that if you’re under 15-16, to not interact with me, unless we are already friends. Thank you <3
@@ -27,3 +25,5 @@ I block VERY freely. Please respect that, and my boundaries.
 I am often closed off and quiet around new people. But still, don’t be afraid to say hi, I promise I don’t bite :)
 
 I am big into Marvel, please and I mean PLEASE talk to me about it…I will become your friend immediately. The obsession isn’t even funny at this point. 14 years of this 😔
+
+I really need to work on my strawpage, ughfff
