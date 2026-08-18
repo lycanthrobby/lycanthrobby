@@ -20,7 +20,7 @@ Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah / Robby, e
 
 18 years old! I ask that if you’re under 15-16, to not interact with me, unless we are already friends. Thank you <3
 
-<center><img src="IMG_5823.jpeg="gambit"><center></center>
+<center><img src="IMG_5823.jpeg”="gambit"><center></center>
 
 I am often closed off and quiet around new people. But still, don’t be afraid to say hi, I promise I don’t bite :)
 
