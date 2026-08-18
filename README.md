@@ -19,6 +19,7 @@ Noah's reworking his gh for once, everyone cheer
 Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah / Robby, either is for, or! By the character I am on pony / names of my fictkins. 
 
 18 years old! I ask that if you’re under 15-16, to not interact with me, unless we are already friends. Thank you <3
+
 I block VERY freely. Please respect that, and my boundaries.
 
 <img src="IMG_5823.jpeg" alt="Gambit">
