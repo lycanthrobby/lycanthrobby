@@ -16,8 +16,7 @@ Here are some ideas to get you started:
 -->
 Noah's reworking his gh for once, everyone cheer
 
-Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah, but you can also call me Robby, Crow(ley), Barty or any nickname you'd like, I do not mind. 
-       
+Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah / Robby, either is for, or! By the character I am on pony / names of my fictkins.
 
 <center><img src="IMG_2876.jpeg" alt="monoma"><center></center>
 Hi, so like... This is a major work in progress! This is my placholder for now. You can find more info on my strawpage!
