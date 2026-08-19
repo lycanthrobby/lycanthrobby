@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Noah! He/Him; Bisexual (masc leaning) and Trans! You can call me Noah / Robby, either is for, or! By the character I am on pony / names of my fictkins. 
+Noah! He/Him; Bisexual (masc leaning), Trans, as well as Asexual! That being said, please do NOT make sexual remarks around me OR towards me, even if it’s in a joking manner. I am very uncomfortable with things like that and I am HAPPILY taken, blelele. That beings said uh… You can call me Noah / Robby, either is for, or! By the character I am on pony / names of my fictkins. 
 
 18 years old! I ask that if you’re under 15-16, to not interact with me, unless we are already friends. Thank you <3
 
