@@ -28,7 +28,7 @@ I am big into Marvel, please and I mean PLEASE talk to me about it…I will beco
 
 I really need to work on my strawpage, ughfff
 
-<center><img src="IMG_5943.jpeg" alt="Bucky"><center></center>
+</center><center><img src="IMG_5943.jpeg" alt="Bucky"><center></center>
 
 I am a Bucky Barnes Yume! I am non-sharing, so I kindly ask that doubles to not interact. If you are a double, I’ll respect you but I most likely won’t interact. I love my husband 😔❤️
 
