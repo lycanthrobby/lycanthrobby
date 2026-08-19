@@ -27,3 +27,9 @@ I am often closed off and quiet around new people. But still, don’t be afraid 
 I am big into Marvel, please and I mean PLEASE talk to me about it…I will become your friend immediately. The obsession isn’t even funny at this point. 14 years of this 😔
 
 I really need to work on my strawpage, ughfff
+
+<img src="IMG_5943.jpeg" alt="Bucky">
+
+I am a Bucky Barnes Yume! I am non-sharing, so I kindly ask that doubles to not interact. If you are a double, I’ll respect you but I most likely won’t interact. I love my husband 😔❤️
+
+I’m also like… A huge Stucky shipper and have been since 2017 👀
