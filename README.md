@@ -30,6 +30,6 @@ I really need to work on my strawpage, ughfff
 
 </center><center><img src="IMG_5943.jpeg" alt="Bucky"><center></center>   That’s my man…MY MAN MY MAN MY MANNNN
 
-I am a Bucky Barnes Yume! I am non-sharing, so I kindly ask that doubles to not interact. If you are a double, I’ll respect you but I most likely won’t interact. I love my husband 😔❤️
+I am a Bucky Barnes Yume! I am non-sharing, so I kindly ask that you int kindly and cautiously if you are a double. If you are, I’ll respect you but I most likely won’t interact myself, but it’s fine if you do! I love my husband :) 
 
 I’m also like… A huge Stucky shipper and have been since 2017 👀
