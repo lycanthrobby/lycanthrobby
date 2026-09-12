@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Noah or Robby! He/Him; Bisexual (masc leaning), Trans, as well as Aroace! That being said, please do NOT make sexual remarks around me OR towards me, even if it’s in a joking manner. I am very uncomfortable with things of that nature, always have been and always will be. You. ughf be saying, “Oh well ur into DMMD and stuff.” I can still like media with those topics, and still be aroace. I just don’t like to think of MYSELF in those situations, it’s js not my cup of tea <3
+Noah or Robby! He/Him; Bisexual (masc leaning), Trans, as well as Aroace! That being said, please do NOT make sexual remarks around me OR towards me, even if it’s in a joking manner. I am very uncomfortable with things of that nature, always have been and always will be. You might be saying, “Oh well ur into DMMD and stuff.” I can still like media with those topics, and still be aroace. I just don’t like to think of MYSELF in those situations, it’s js not my cup of tea <3
 
 18 years old! I ask that if you’re under 15-16, to not interact with me, unless we are already friends. Thank you <3
 
